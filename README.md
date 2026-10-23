@@ -1,1 +1,1 @@
-# Digitalizaci-n-CruzNicol-s-PonceChristian
+# Digitalizacion-CruzNicolás-PonceChristian
